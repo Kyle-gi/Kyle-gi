@@ -37,7 +37,7 @@
 
 ### 💡 Interests & Values
 
-- 🧘‍♂️ Calisthenics & martial arts (Pencak Silat)
+- 🧘‍♂️ Calisthenics
 - 🧠 Personal growth, discipline, and mental strength
 - 📚 Reading history & tech
 - 🎻 Playing the violin & ♟️ chess for focus
